@@ -1,0 +1,2 @@
+# Kontak
+kalahkan base lawan
